@@ -1,2 +1,0 @@
-#xinchao
-#xinchao2
